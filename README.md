@@ -4,7 +4,7 @@
 ### Aquiles Alvarez
 ![Aquiles Alvarez](https://upload.wikimedia.org/wikipedia/commons/4/47/Aquiles_Alvarez_Henriques.jpg)
 ### Cinthia Viteri
-*![Cinthia Viteri](https://upload.wikimedia.org/wikipedia/commons/8/81/Cynthia_Viteri.jpg)
+*![Cinthia Viteri](https://upload.wikimedia.org/wikipedia/commons/e/eb/Cynthia_Viteri_Jimenez.jpg)
 
 ## Resultados 
 
